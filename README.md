@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **powerog30@gmail.com**
 
-<h3 align="left"
+
 <p align="left">
 </p>
 
